@@ -3,7 +3,7 @@
 ### My email is anthonyc2394@hstat.org
 ### The school I go to is High School of Telecommunication Arts and Technology (HSTAT)
 #### One of my favorite things to do is to play music for people. I was lucky enough to learn how to play the guitar and piano at a young age, so I often perform for my family or strangers near a park.
-#### My school schedule is: 
+#### My school schedule 
 
 * PD 1: **_Spanish_**
 * PD 2: **_Global History_**
